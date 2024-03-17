@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ruizja-a8
 - 👀 I’m interested in science
-- 🌱 I’m currently learning about out universe
+- 🌱 I’m currently learning about our universe
 - 💞️ I’m looking to collaborate on some interesting projects
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
