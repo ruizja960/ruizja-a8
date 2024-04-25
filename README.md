@@ -2,7 +2,7 @@
 - 👀 I’m interested in science
 - 🌱 I’m currently learning about our universe
 - 💞️ I’m looking to collaborate on some interesting projects
-- 📫 How to reach me ruizja960ATGMAIL
+- 📫 How to reach me ruizja960ATGMAILDOTCOM
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
